@@ -1,4 +1,4 @@
-## First of all, Thank you for checking my Github 🥰
+### First of all, Thank you for checking my Github 🥰
 
 ### I'm Nikhil Thakare 😇
 
